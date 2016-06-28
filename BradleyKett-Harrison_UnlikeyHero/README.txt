@@ -1,0 +1,1 @@
+You play the dark knight who now rules over the kingdom, after realising how lonely it gets to rule a kingdom with no subjects, you decide to return everybody to normal using your dark magic. The objective of the game is to undo all of the damage done during your conquest and return the land to normal. 
